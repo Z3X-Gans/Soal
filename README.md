@@ -1,0 +1,2 @@
+# Soal
+Sederhana saja
